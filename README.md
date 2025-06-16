@@ -3,7 +3,7 @@
 
 ## 💫 About Me:
 
-- 🔭 I’m currently working as a <b>Senior Software Engineer</b> <b>[@fyle](https://fylehq.com)</b>
+- 🔭 I’m currently working as a <b>Engineering Manager</b> <b>[@fyle](https://fylehq.com)</b>
   <br>
 
 ## 🌐 Socials:
