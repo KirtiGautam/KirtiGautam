@@ -3,8 +3,7 @@
 
 ## 💫 About Me:
 
-- 🔭 I’m currently working as a <b>Engineering Manager</b> <b>[@fyle](https://fylehq.com)</b>
-  <br>
+- 🔭 I’m currently working as a <b>Engineering Team Leader</b> <b>[@Sage]([https://fylehq.com](https://www.sage.com/))</b>
 
 ## 🌐 Socials:
 
